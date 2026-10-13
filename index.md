@@ -1,5 +1,5 @@
 ---
-title: Juan Duenas: a lifetime of struggle!
+title: Juan Dueñas - a lifetime of struggle!
 ---
 
 ### Look a catchy header!
